@@ -44,7 +44,7 @@ Follow this page for updates, and feel free to reach out with ideas or feedback.
 
 ## 📧 Get in Touch
 
-Have questions or want to collaborate? Reach us at [your-email@example.com].
+Have questions or want to collaborate? Reach us at [info@claradoc.org].
 
 ---
 
